@@ -1,1 +1,1 @@
-# Welcome to Mihael's website
+# Welcome to Michael's website
